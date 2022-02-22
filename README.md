@@ -1,4 +1,3 @@
-![](https://cdn.discordapp.com/attachments/849059889103503380/943144086024622110/bannergithub.png)
 ### Hi!👋
 
 
