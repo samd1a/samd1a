@@ -1,13 +1,6 @@
-### Hi!👋
+##👋
+**([samdia.cf](https://www.samdia.cf))**
 
-
-**I am a Computer Science student and beginner web developer.**
-
-**twitter ([@samd1a](https://www.twitter.com/samd1a))**
-
-**website ([samdia.cf](https://www.samdia.cf))**
-
-**all links ([solo.to/samd](https://solo.to/samd))**
 
 
 
