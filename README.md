@@ -1,5 +1,4 @@
-## 👋
-**([samdia.cf](https://www.samdia.cf))**
+Hi! I'm Sam. **[www.samdia.cf](https://www.samdia.cf)**
 
 
 
